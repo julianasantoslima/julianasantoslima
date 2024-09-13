@@ -6,7 +6,7 @@
     Utilizo esse espaço para minha organização e compartilhamento dos meus projetos
 
   ### Você pode entrar em contato comigo 📪
+     @mo0n_aph 
+     Juuhvenus.03@gmail.com 
 
-    Juuhvenus.03@gmail.com 
-    @Mo0n_aph
-    
+ ![](https://media1.tenor.com/m/CIYPCVocPckAAAAC/kuromi.gif)
